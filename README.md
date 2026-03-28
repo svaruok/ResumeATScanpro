@@ -1,4 +1,4 @@
-resumeproscan.netlify.app
+resumeproscan.netlify.app or https://feamgx5i3bi3i.ok.kimi.link
 
 # Photographer Style Template
 
